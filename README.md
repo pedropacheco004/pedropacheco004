@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Pedro
 - 🏴 I’m from Portugal and I’m 20 years old
 - 🌱 I’m currently studying informatis engeneering in Institudo Superior de Engenharia do Porto
-- 📫 How to reach me: pedroventil(discord)
+- 📫 How to reach me: 1230431@isep.ipp.pt
